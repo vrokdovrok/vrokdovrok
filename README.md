@@ -7,6 +7,6 @@ Meu nome é Carlos Eduardo
 
 ## Você pode entrar em contato comigo 📫:
 
-Instagram: @carloscatelann
+Não possuo meios de comunicação.
 
 ![](https://media1.tenor.com/m/UEYxx6a-VtgAAAAd/brick-eating.gif)
